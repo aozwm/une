@@ -2,7 +2,7 @@
 
 在全球高等教育跨国流动与数字化转型的双重浪潮下，对海外高校学位证书的精准识别，已成为跨国企业人力资源部（HR）、学术审核机构以及广大归国留学生共同面临的刚需。作为澳大利亚历史悠久且享誉海内外的公立综合性大学，[新英格兰大学](https://une.edu.au "University of New England")（University of New England，简称 **UNE**）凭借其深厚的学术积淀与灵活的教育模式，每年都吸引着海量国际人才。
 
-![新英格兰大学毕业证及学位证文凭样本模版(University of New England Coast Diploma/Certificate of Degree)](une-diploma.jpg)
+![新英格兰大学毕业证及学位证文凭样本模版(University of New England Diploma/Certificate of Degree)](une-diploma.jpg)
 
 本文将以**新英格兰大学毕业证样式模版**为核心研究对象，结合最新的官方视觉系统规范，进行多维度的深度参照解析。通过解构其版面美学、符号寓意以及隐藏防伪链条，为您提供一份权威的“视觉密码手册”。
 
